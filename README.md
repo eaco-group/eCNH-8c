@@ -16,7 +16,7 @@ Distributed eCNH CA:
 
 项目编号: eCNH202601-7592970514218697000
 
-本项目是由eCNH 猎户座小组 + [网站开发专家](https://space.coze.cn/) 创建.
+本项目是由eCNH 8c猎户座小组 + [网站开发专家](https://space.coze.cn/) 创建.
 
 [**项目地址**](https://space.coze.cn/task/7592970514218697000)， https://group8.base44.app/
 
