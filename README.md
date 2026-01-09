@@ -55,3 +55,36 @@ pnpm run dev
 
 <img width="532" height="793" alt="image eCNH logo202601" src="https://github.com/user-attachments/assets/cecc6962-cb56-4b0a-8193-125348da09a6" />
 
+
+# 关于eCNH,
+
+https://9star.base44.app/Home
+
+https://ecnh880m.base44.app/Home
+
+https://americas.base44.app/
+
+https://jpy-ecnh.base44.app/
+
+https://ecnh-kazakhstan.base44.app/Home
+
+https://www.orca.so/pools?tokens=7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+
+https://app.uniswap.org/explore/tokens/solana/7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+
+https://solscan.io/token/7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+https://www.oklink.com/solana/token/7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+https://web3.okx.com/token/solana/7GQnqthWKa5v2GqXYWhmgWZY5mCRrniwK3Xuinm9GKw5
+
+https://x.com/earthCNH
+
+https://t.me/eCNHusdc
+
+https://europe.base44.app/
+欧洲eCNH兑换天狼小组 2026-2030
+
+欧洲批发eCNH讨论小组，
+https://t.me/+D6FwWU549jswYTQ1
+
+eCNH线上股东。
+
